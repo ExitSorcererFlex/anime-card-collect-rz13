@@ -1,4 +1,4 @@
-
+rare anime card collection Script is the best anime card collection Script, featuring aimbot and no cooldown. Safe and powerful for all your needs.
 
 
 
